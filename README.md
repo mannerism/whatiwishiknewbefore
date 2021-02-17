@@ -3,4 +3,4 @@
 2. Scalability in UI/UX is overrated and often times unnecessary. 
 3. Any marketing within the company should be directed towards outside the company rather than inside the company.
 4. The capacity of a CEO is the capacity of the company, unless the CEO is unusually open-minded. 
-
+5. Beware of working close by an intellecutally challenged person whose actions are bold and doesn't realize his or her limitations
