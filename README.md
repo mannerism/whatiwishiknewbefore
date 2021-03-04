@@ -6,4 +6,4 @@
 5. Be wary of working close by an intellecutally challenged person whose actions are bold and doesn't realize his or her limitations.
 6. Don't try to understand every word spoken by a person whose voice is unbearably low. 
 7. Conservatism stems out of 'safety-first' approach.
-8. Me being wrong or right isn't as important as a company being successful. 
+8. Me being wrong or right isn't as important as a company being successful, in fact, being completely wrong gives way more insights than being indecisive.
