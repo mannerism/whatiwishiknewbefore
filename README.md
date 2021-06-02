@@ -7,4 +7,5 @@
 6. Don't try to understand every word spoken by a person whose voice is unbearably low. 
 7. Conservatism stems out of 'safety-first' approach.
 8. Me being wrong or right isn't as important as a company being successful, in fact, being completely wrong gives way more insights than being indecisive.
-9. Great things are done by not following the rules. But, being rebellious without being hesitant first is a downright irresponsible and often times suicidal in its extreme. 
+9. Great things are done by not following the rules. But, being rebellious without hesitation is downright irresponsible and often times suicidal in its extreme. 
+10. If a leader credits team members for success and takes responsibility of a failure on behalf of the team, team members will avidly follow his or her later endeavor.
