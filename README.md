@@ -9,3 +9,5 @@
 8. Me being wrong or right isn't as important as a company being successful, in fact, being completely wrong gives way more insights than being indecisive.
 9. Great things are done by not following the rules. But, being rebellious without hesitation is downright irresponsible and often times suicidal in its extreme. 
 10. If a leader credits team members for success and takes responsibility of a failure on behalf of the team, team members will avidly follow his or her later endeavor.
+11. There is no such thing as right or wrong, there is only like or dislike. 
+12. It's natural to not know and be uncertain, unless you are a leader. Leader doesn't have luxury of not knowing and be uncertain.
