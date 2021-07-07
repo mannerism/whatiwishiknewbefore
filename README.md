@@ -16,3 +16,4 @@
 15. Company should start on time, close on time.
 16. No Profanity 
 17. Never criticize a teammate. 
+18. "The journey is better than the end." - Cervantes. So enjoy the ride.
