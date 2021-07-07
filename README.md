@@ -14,3 +14,5 @@
 13. Never try to be better than someone else, always learn from others. Never cease trying to be the best you can be -- that's under your control. If you get too engrossed and involved and concerned in regard to the things over which you have no control, it will adversely affect the things over which you have control. - John Wooden, "The difference between winning and succeeding"
 14. No printed word, nor spoken plea can teach young minds what they should be. Not all the books on all the shelves - but what the teachers are themselves." - Rudyard Kipling.
 15. Company should start on time, close on time.
+16. No Profanity 
+17. Never criticize a teammate. 
