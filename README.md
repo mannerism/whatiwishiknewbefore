@@ -1,4 +1,7 @@
 # what I wish I knew before
+
+--- 
+
 1. Planning is way harder than coding
 2. Scalability in UI/UX is overrated and often times unnecessary. 
 3. Any marketing within the company should be directed outside the company rather than inside the company.
@@ -17,3 +20,4 @@
 16. No Profanity 
 17. Never criticize a teammate. 
 18. "The journey is better than the end." - Cervantes. So enjoy the ride.
+19. "Information consumes attention hence a wealth of information creates a poverty of attention ", Herbert Simon, 1977
