@@ -21,3 +21,4 @@
 17. Never criticize a teammate. 
 18. "The journey is better than the end." - Cervantes. So enjoy the ride.
 19. "Information consumes attention hence a wealth of information creates a poverty of attention ", Herbert Simon, 1977
+20. "The truth may be vital, but without love, it is unbearable," Caritas in veritate, 2009, Pope Benedict XVI
