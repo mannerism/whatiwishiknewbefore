@@ -25,3 +25,4 @@
 21. Try your best not to lie. If you have to lie, only lie to unharm those that truly matter in your life.
 22. "The mind fears the heart but the heart doesn't mind." Avicii, Trouble.
 23. There simply isn't what one 'must' do in life.
+24. Ask funders for money, and they'll give you advice; but ask for advice and they'll give you money.
