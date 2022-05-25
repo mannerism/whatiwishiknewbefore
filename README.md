@@ -26,3 +26,4 @@
 22. "The mind fears the heart but the heart doesn't mind." Avicii, Trouble.
 23. There simply isn't what one 'must' do in life.
 24. Ask funders for money, and they'll give you advice; but ask for advice and they'll give you money. [link](https://kk.org/thetechnium/103-bits-of-advice-i-wish-i-had-known/)
+25. Not giving up is not an innate ability, it is a nurtured ability.
