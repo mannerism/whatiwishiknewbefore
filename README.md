@@ -30,3 +30,6 @@
 26. Don't attend when not invited, don't advise when not asked
 27. love, care, humble, laugh, being considerate, and being emotionally expressive are relatively newer and much higher value of humanity as a result of the advance of our civilization. The humanity is shaped by the survival of the fittest as a whole species not by the law of the jungle as an individual. 
 28. Discipline over talent.
+29. Get comfortable with discomfort
+30. Live dangerously
+31. If you are angry over someone's mistake, you may be incompetent. 
