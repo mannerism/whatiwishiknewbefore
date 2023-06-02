@@ -33,3 +33,4 @@
 29. Get comfortable with discomfort
 30. Live dangerously
 31. If you are angry over someone's mistake, you may be incompetent. 
+32. Economically, a startup is best seen not as a way to get rich, but as a way to work faster. -PG
