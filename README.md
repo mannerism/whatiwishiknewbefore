@@ -37,3 +37,4 @@
 33. Don't self-reflect too much. Be shameless and bold. It's okay to be blunt. Fuck regrets.
 34. If you blame others, you are far away. If you blame yourself, you are half way there. If you blame no one, you are already there.
 35. Asking questions is way harder than you think.
+36. Knowledge isn't free. You have to pay attention. - Richard P. Feynman
