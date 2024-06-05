@@ -35,7 +35,8 @@
 31. If you are angry over someone's mistake, you may be incompetent. 
 32. Economically, a startup is best seen not as a way to get rich, but as a way to work faster. -PG
 33. Don't self-reflect too much. Be shameless and bold. It's okay to be blunt. Fuck regrets.
-34. If you blame others, you are far away. If you blame yourself, you are half way there. If you blame no one, you are already there.
-35. Asking questions is way harder than you think.
-36. Knowledge isn't free. You have to pay attention. - Richard P. Feynman
-37. If you blame someone, you are not there. If you blame yourself, you are half-way there. If you blame nobody, you've reached here.
+34. If you can't find a solution to a problem no matter what you try, you may be encountering the truth you need to accept. - Buddah
+35. If you blame others, you are far away. If you blame yourself, you are half way there. If you blame no one, you are already there.
+36. Asking questions is way harder than you think.
+37. Knowledge isn't free. You have to pay attention. - Richard P. Feynman
+38. If you blame someone, you are not there. If you blame yourself, you are half-way there. If you blame nobody, you've reached here.
